@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://meirichiguajin.pages.dev/">每日吃瓜今日大瓜 吃瓜爆料平台官网</a>
 
-点击访问：<a href="https://cg65-01.pages.dev/">91爆料-</a>
+点击访问：<a href="https://cg65-01.pages.dev/">91爆料</a>
 
 点击访问：<a href="https://dy5-07.pages.dev/">抖音成年版</a>
 
